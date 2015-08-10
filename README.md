@@ -1,0 +1,1 @@
+# Mac-EasyApps-by-DaniWare
